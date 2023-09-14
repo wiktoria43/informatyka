@@ -1,1 +1,2 @@
 # informatyka
+Wiktoria Mrozińska
